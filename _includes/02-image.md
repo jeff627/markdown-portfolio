@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Celty Sturluson](https://vignette.wikia.nocookie.net/durarara/images/e/e0/Celty.png/revision/latest?cb=20190109214031)
