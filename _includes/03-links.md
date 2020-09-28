@@ -1,1 +1,1 @@
-[Celty Fandom Page] (https://durarara.fandom.com/wiki/Celty_Sturluson)
+[Celty Page] (https://myanimelist.net/character/28331/Celty_Sturluson)
